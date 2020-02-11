@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcRKc-xUYn19NUrHzVqDUvlxX6hgjIcCungQRdryO8II8Y0oQvTu) Patrice Bergeron.
+![Image of Patrice Bergeron](https://s3.amazonaws.com/bostonsportsjournal-cdn/uploads/2019/02/GettyImages-116446808.jpg) Patrice Bergeron.
