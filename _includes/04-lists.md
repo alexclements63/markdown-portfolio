@@ -1,1 +1,10 @@
-Replace this with a list of your favorite things.
+Favourite Things
+* Hockey
+  * Boston Bruins
+  * David Pastrnak
+  * Brad Marchand
+  * Patrice Bergeron
+* Video games
+* Social media
+* Movies and TV Shows
+  * How I Met Your Mother
